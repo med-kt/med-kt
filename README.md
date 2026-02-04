@@ -1,3 +1,3 @@
 ## hoi were shoto ok pls foolooww us on our main acc 
 
-![](https://komarev.com/ghpvc/?username=yoon-pierrot&color=ddce71)
+![](https://komarev.com/ghpvc/?username=med-kt&color=7cca92)
