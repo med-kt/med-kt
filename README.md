@@ -15,7 +15,7 @@
  
  ![](https://i.pinimg.com/736x/4f/21/82/4f2182eb4c2c262fcd14ae5479b8bcee.jpg)
 
-[ata](https://azot.atabook.org/) ,  [rentry](https://rentry.co/legacy-kt-main-page)  
+[ata](https://azot.atabook.org/) ,  [BYI portal](https://rentry.co/legacy-kt-main-page)  
 
 ![](https://komarev.com/ghpvc/?username=med-kt&label=medkits)
 
