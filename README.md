@@ -9,7 +9,7 @@
  
  ![](https://i.postimg.cc/k5fyKmWN/z66qxu.png)
  
- ${\textsf{\color{#888888} ☆ PLEASE DONT HESITATE TO INT !! We re bad at socializing !! also iwc if youre some1 idk : P  }}$
+ ${\textsf{\color{#888888} ☆ PLEASE DONT HESITATE TO INT !! We re bad at socializing !! iwc unless known or dni if byi list : P  }}$
  
  ${\textsf{\color{#888888} Read BYI portal. (NOT DONE) }}$
  
