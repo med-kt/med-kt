@@ -1,6 +1,6 @@
  <div align="center">
    
- ${\textsf{\color{#bababa}  𓏵  '' lets not do that again  . . . ''  𓏵  }}$ 
+ ${\textsf{\color{#bababa}  𓏵  '' Lets not do that again  . . . ''  𓏵  }}$ 
 
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&label=bandages)
@@ -11,9 +11,11 @@
  
  ${\textsf{\color{#888888} ☆ PLEASE DONT HESITATE TO INT !! We re bad at socializing !! also iwc if youre some1 idk : P  }}$
  
+ ${\textsf{\color{#888888} Read BYI portal. (NOT DONE) }}$
+ 
  ![](https://i.pinimg.com/736x/4f/21/82/4f2182eb4c2c262fcd14ae5479b8bcee.jpg)
 
-${\textsf{\color{#888888} sign ata ,  rentry soon.  }}$
+[ata](https://azot.atabook.org/) ,  [rentry](https://rentry.co/legacy-kt-main-page)  
 
 ![](https://komarev.com/ghpvc/?username=med-kt&label=medkits)
 
