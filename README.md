@@ -5,8 +5,12 @@
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&label=bandages)
 
+
  
  ![](https://i.postimg.cc/k5fyKmWN/z66qxu.png)
+ 
+ ${\textsf{\color{#888888} ☆ PLEASE DONT HESITATE TO INT FIRST!! We are REALLY scared to socialize first : ( }}$
+ 
  ![](https://i.pinimg.com/736x/4f/21/82/4f2182eb4c2c262fcd14ae5479b8bcee.jpg)
 
 ${\textsf{\color{#888888} sign ata ,  rentry soon.  }}$
