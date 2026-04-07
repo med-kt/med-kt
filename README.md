@@ -1,7 +1,6 @@
  <div align="center">
    
- ${\textsf{\color{#bababa}  𓏵  '' Lets not do that again  . . . ''  𓏵  }}$ 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=30&pause=200&color=BABABA&center=true&vCenter=true&width=635&lines=𓏵+''+Let's+not+do+that+again..+''+𓏵;𓏵+''+Don't+die.+''+𓏵;𓏵+''Let's+make+this+quick.+''+𓏵)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&label=bandages)
 
