@@ -8,4 +8,4 @@ ${\textsf{\color{#C74D3A} MOKI / RIN  }}$
   
 ![](https://neckdoll.zombie.jp/material/line/alice-rose/line-rose-alicer1.gif)
 
- [pronouns](https://en.pronouns.page/@marriedsouls)  . [atabook](https://twixxie.atabook.org/) . [strawp.](https://twixxed.straw.page/)
+ [pronouns](https://en.pronouns.page/@marriedsouls)  . [新𝖻𝗈𝗈𝗄 ](https://twixxie.atabook.org/) . [strawp.](https://twixxed.straw.page/)
